@@ -1,2 +1,0 @@
-# gjHshhshSjsns.github.io
-كوبي
